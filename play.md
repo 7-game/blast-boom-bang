@@ -27,3 +27,5 @@ Blast Boom Band – игровой автомат с наличием демо-�
 
 В Blast Boom Band online играть можно в любое время и даже без наличия финансов. Запускайте увлекательный слот и наслаждайтесь игровым процессом без ограничений!
 
+# [Играть Blast Boom Band](https://eurogame.online/game-demo/blast-boom-bang?utm_source=p1&utm_medium=web&utm_campaign=github&utm_term=blast-boom-bang&utm_content=link-bottom-play)
+
